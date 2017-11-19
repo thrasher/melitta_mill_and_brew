@@ -1,4 +1,4 @@
-## Melita Mill and Brew Coffee Maker Parts
+## Melitta Mill and Brew Coffee Maker Parts
 
 See details on Thingiverse:
 https://www.thingiverse.com/thing:1547304
